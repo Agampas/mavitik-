@@ -1,2 +1,0 @@
-# mavitik-
-Doğrulanmıs rozet
